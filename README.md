@@ -1,3 +1,7 @@
 # collabo
 즐거운 팀플
-ENTJ
+
+ISTP
+- mbti
+- 집
+- 직관
